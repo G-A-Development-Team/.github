@@ -10,3 +10,6 @@
 🍿 Fun facts - what does your team eat for breakfast?
 🧙 Remember, you can do mighty things with the power of [Markdown](https://docs.github.com/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
 -->
+![image](https://user-images.githubusercontent.com/39221871/180583353-29976cf9-79bb-4709-ba1d-359403361dc3.png)
+
+We simply make Aimware scripts because we are pros. 
