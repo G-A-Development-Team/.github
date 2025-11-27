@@ -19,3 +19,5 @@ On Novemeber, 21st. Our team was purged due to unresolved matters involving the 
 We were banned for trying to help Aimware. And just like all the other previous beta testers we get banned for essentially uncovering the blanket of racism that this cheat is bounded by.
 
 Coming soon we are releasing something no one has ever seen. Leagues above Aimware in their own framework. Stay Tuned.
+
+Next month would've marked 10 years on Aimware for me. It's quite unfortunate it had to end this way for noreason.
