@@ -21,3 +21,5 @@ We were banned for trying to help Aimware. And just like all the other previous 
 Coming soon we are releasing something no one has ever seen. Leagues above Aimware in their own framework. Stay Tuned.
 
 Next month would've marked 10 years on Aimware for me. It's quite unfortunate it had to end this way for no reason.
+
+https://discord.gg/SmVg9AKqNs
